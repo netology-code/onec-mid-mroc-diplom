@@ -1,0 +1,1 @@
+# onec-mid-mroc-diplom
